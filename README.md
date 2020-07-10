@@ -1,2 +1,2 @@
-# ekazun.github.io
+Gamers Amikom Project
 19.01.4339 & 19.01.4355 Project from Amikom University
